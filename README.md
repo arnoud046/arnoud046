@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a lot about AI and working in a Team.
 - 💞️ I’m looking to collaborate on to automate processes. 
 - 📫 How to reach me not 
-- 😄 Pronouns: Arno  
+- 😄 Pronouns: He
 - ⚡ Fun fact: Im very kind
 
 <!---
